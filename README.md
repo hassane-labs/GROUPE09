@@ -1,4 +1,4 @@
-# GROUPE09
+# GROUPE 09
 
 🌍 Étoile d'Afrique
 
